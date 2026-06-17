@@ -33,7 +33,8 @@ Let me know if you need any modifications! 😊
 - [xonglebongle](https://github.com/xonglebongle)
 - [duncanyoyo1](https://github.com/duncanyoyo1)
 - [bgelmini](https://github.com/bgelmini)
-- roasty
+- roast
+- lilgabo72
 - [oiimrosabel](https://github.com/oiimrosabel)
 - [ngencokamin](https://github.com/ngencokamin)
 - [Doronimmo](https://github.com/Doronimmo)
